@@ -1,0 +1,1 @@
+Make the flour ready,put some boiled aloo in it then make prism shaped samosa and put in boiling oil.
